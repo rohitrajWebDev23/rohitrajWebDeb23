@@ -1,5 +1,5 @@
 # 💫 Hi 👋, I'm Rohit Rajbhar
-**A passionate fullStack web developer || WebDev Engineer ||  from India***
+**A passionate fullStack web developer || WebDev Engineer ||  from India**
 
 Email Me 👉 ✉️ **rohitrajbofficial23@gmail.com** For Collaboration/Project or Anything Else. 😊😊
 
